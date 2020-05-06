@@ -66,7 +66,7 @@ text: [Ryan McGinley and Sigur Ros History Lesson](https://t.me/hopelander/147)
 
 [vaka](https://t.me/hopelander/387)
 
-[**Sigur Rós: Óveður [Official Video\]** 1080p](https://t.me/hopelander/400)
+[**Sigur Rós: Óveður [Official Video]** 1080p](https://t.me/hopelander/400)
 
 [**Sigur Rós - Reykjavik 30.07.06**](https://t.me/hopelander/423)
 
